@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JOHNBLAK
+- 👀 I’m interested in Ethical Hacking & Web Developmemt
+- 🌱 I’m currently learning Both Of them
+- 💞️ I’m looking to collaborate with ethical hackers
+- 📫 How to reach me mailto:@johnblakofficial@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I Am A Criminal...
